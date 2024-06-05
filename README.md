@@ -1,1 +1,0 @@
-# producto-inteligencia-de-negocios
